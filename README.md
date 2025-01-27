@@ -1,4 +1,5 @@
-## Hi there 👋
+## Hi there, I'm Pat :blush:
+## :mortar_board: currently attending a data analytics course run by Spiced in Berlin
 
 <!--
 **paprikaa888/paprikaa888** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
