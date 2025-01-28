@@ -1,6 +1,15 @@
 ## Hi there, I'm Pat :blush:
 :mortar_board: currently attending a data analytics course run by Spiced in Berlin
 
+😁 love the pic 😁
+
+![Meine erste Banane (11_1989) | TITANIC-Titel | Postkarten | TITANIC – Das endgültige Satiremagazin](https://github.com/user-attachments/assets/0e0459ed-71c8-496a-a860-2d67e4693643)
+
+
+### ➡️ <https://www.workaway.info> <br/>
+Website recommendation for travelers/digital nomads 🌴
+
+
 <!--
 **paprikaa888/paprikaa888** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
